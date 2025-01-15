@@ -8,4 +8,3 @@
 - 📫 How to reach me: GitHub
 - 😄 Pronouns: she/hers
 - ⚡ Fun fact: Not all snapple facts are true 😳
--->
